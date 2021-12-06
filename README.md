@@ -1,9 +1,4 @@
-Silahkan bagi yg mau recode!!! 
-Credit : iqbal dev 
-Author : iqbal dev 
-Author2 : PresidenHanz
-Facebook : HANZ KONTOLZ 
-WA : -------
+CRACK 
 
 SC CRACK FACEBOOK FREE RECODE 
 
